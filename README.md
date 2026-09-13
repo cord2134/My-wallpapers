@@ -1,1 +1,1 @@
-Collection of wallpapers I like
+Collection of wallpapers I likek
